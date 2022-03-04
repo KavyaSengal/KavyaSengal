@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KavyaSengal
+- 👀 I’m interested in building strong virtual relationships
+- 🌱 I’m currently learning link building and social media marketing
+- 💞️ I’m looking to collaborate on article submission
+- 📫 How to reach me quizukiquiz@gmail.com
